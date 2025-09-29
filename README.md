@@ -1,4 +1,4 @@
-# README
+# THE MOON AND THE TIDE, PUSH AND PULL
 
 HELLO WORLD!
 You found this on ponytown probably, so here's the basics;
